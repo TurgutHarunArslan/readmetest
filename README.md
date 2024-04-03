@@ -1,2 +1,1 @@
-# readmetest
-this is for some applications i use
+https://dash.stozu.net/join/ETOWfoKp7yVG48sZ
